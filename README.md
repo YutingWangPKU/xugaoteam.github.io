@@ -1,1 +1,1 @@
-# XuGaoTeam.github.io
+# xugaoteam.github.io
